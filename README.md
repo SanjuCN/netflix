@@ -1,0 +1,8 @@
+![Screenshot 2024-01-11 221702](https://github.com/SanjuCN/netflix/assets/145324520/993ee258-f4b6-4144-922d-e3c9d42fff02)
+![Screenshot 2024-01-11 221648](https://github.com/SanjuCN/netflix/assets/145324520/7be562b1-ebc7-48b4-a370-beaa54ab4d8a)
+![Screenshot 2024-01-11 221717](https://github.com/SanjuCN/netflix/assets/145324520/d53fb969-7bff-4cc5-bcfa-6c40820c36cc)
+![Screenshot 2024-01-11 221749](https://![Screenshot 2024-01-11 221817](https://github.com/SanjuCN/netflix/assets/145324520/6f6ec0d4-b129-4df2-b11b-1e9a73154ab7)
+github.com/SanjuCN/netflix/assets/145324520/d2017cf1-3be7-47aa-a830-b1f4522d3de7)
+![Screenshot 2024-01-11 221801](https://github.com/SanjuCN/netflix/assets/145324520/87eed5f5-8605-4285-9a77-a165d70da6f9)
+![Screenshot 2024-01-11 221826](https://github.com/SanjuCN/netflix/assets/145324520/f8103eeb-2894-436b-9b01-04fee81c65a0)
+![Screenshot 2024-01-11 221901](https://github.com/SanjuCN/netflix/assets/145324520/fe006791-0e78-4808-bf3b-fa1238f79686)
